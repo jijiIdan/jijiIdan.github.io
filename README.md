@@ -1,1 +1,0 @@
-# jijiIdan.github.io
